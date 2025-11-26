@@ -1,1 +1,0 @@
-# dellksnu.github.io
